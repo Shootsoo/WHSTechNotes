@@ -7,3 +7,8 @@ Today, I created my first GitHub account and repository. I'm excited to start us
 
 
 First use the date as your heading. Then start writing your journal entry below the date. If you do not use this format, the grading program will not recognize your entry.
+
+# September 10, 2024
+
+
+Today I made a new entry
