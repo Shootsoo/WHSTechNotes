@@ -11,4 +11,4 @@ First use the date as your heading. Then start writing your journal entry below 
 # September 10, 2024
 
 
-Today I made a new entry
+As a class, we followed the instructions to set up our GitHub journals. However, only a small number of journals were set up in a way that I could access them. Let’s figure out together what went wrong and how we can improve the process.
