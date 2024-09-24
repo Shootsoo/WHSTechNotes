@@ -12,3 +12,8 @@ orentation sensor,light sensor,amd ion Orenitation lets you control the left pit
 
 
 there was nothing bad you did good and i wouldnt change anything
+
+# September 24, 2024
+
+
+it helps you by making sure your taking all the right steps so that the code works properly 
