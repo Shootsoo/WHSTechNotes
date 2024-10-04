@@ -17,3 +17,9 @@ there was nothing bad you did good and i wouldnt change anything
 
 
 it helps you by making sure your taking all the right steps so that the code works properly 
+
+
+# October 4, 2024
+
+
+A important thing I use from computer science is messages because whene someone is very far away. And if it didnt exist my parents would be constantly be worried abouut me or if its someting important we be unnable to tell eachother.
