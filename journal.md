@@ -23,3 +23,9 @@ it helps you by making sure your taking all the right steps so that the code wor
 
 
 A important thing I use from computer science is messages because whene someone is very far away. And if it didnt exist my parents would be constantly be worried abouut me or if its someting important we be unnable to tell eachother.
+
+
+# October16, 2024
+
+
+computer science allows compays to get work done faster
