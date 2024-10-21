@@ -25,7 +25,13 @@ it helps you by making sure your taking all the right steps so that the code wor
 A important thing I use from computer science is messages because whene someone is very far away. And if it didnt exist my parents would be constantly be worried abouut me or if its someting important we be unnable to tell eachother.
 
 
-# October16, 2024
+# October 16, 2024 
 
 
 computer science allows compays to get work done faster
+
+
+# October 21, 2024
+
+
+I consider ai a good thing mainly because of these reasons firstly it can get you to places quickly like think of apple and its map an ai thats able to make the quickest route to where you wanna go ans secondly 
