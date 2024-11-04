@@ -35,3 +35,9 @@ computer science allows compays to get work done faster
 
 
 I consider ai a good thing mainly because of these reasons firstly it can get you to places quickly like think of apple and its map an ai thats able to make the quickest route to where you wanna go ans secondly 
+
+
+
+# November 4, 2024
+
+
