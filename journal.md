@@ -42,3 +42,9 @@ I consider ai a good thing mainly because of these reasons firstly it can get yo
 
 
 protecting your personal info is really important because it stops people from impersonating you or stealing your bank info some steps to protecting it is never posting it on the website your on or using the steps the website provides you to help and protect your info I have never realesed my personal info online but if I ever done it I would try to delete it as soon as possible since if it stays up for to long there is no way to actully get it of the internet because people 
+
+
+
+# December 2, 2024
+
+
