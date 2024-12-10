@@ -48,3 +48,4 @@ protecting your personal info is really important because it stops people from i
 # December 2, 2024
 
 
+brain rot to me means stuff that makes you dumber and i feel like it has a negative effect since it is shortening kids attention spans by a lot
