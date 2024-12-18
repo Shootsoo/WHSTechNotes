@@ -45,7 +45,19 @@ protecting your personal info is really important because it stops people from i
 
 
 
-# December 2, 2024
+# December 9, 2024
 
 
-brain rot to me means stuff that makes you dumber and i feel like it has a negative effect since it is shortening kids attention spans by a lot
+brain rot to me means stuff that makes you dumber and i feel like it has a negative effect since it is shortening kids attention spans by a lot to be honest it has never effected me since i do not look at it.
+
+slop makes me think of brain rot and lore to technolgy makes me think of a story.
+
+yes i think there is a way by trying to avoid brain rot entirly because itll help to clear your mind
+
+
+
+# December 16, 2024
+
+
+yes i am looking forward for winter break.
+
