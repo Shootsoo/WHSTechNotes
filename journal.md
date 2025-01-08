@@ -61,3 +61,9 @@ yes i think there is a way by trying to avoid brain rot entirly because itll hel
 
 yes i am looking forward for winter break.
 
+
+
+# January 8, 2025
+
+
+the thing in class i enjoyed the most was using the zumi robots and learning how to code it properly and make it move and as for the future I would really like to explore 
