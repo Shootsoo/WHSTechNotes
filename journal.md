@@ -67,3 +67,9 @@ yes i am looking forward for winter break.
 
 
 the thing in class i enjoyed the most was using the zumi robots and learning how to code it properly and make it move and as for the future I would really like to explore 
+
+
+
+# January 13, 2025
+
+
