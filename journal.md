@@ -73,3 +73,4 @@ the thing in class i enjoyed the most was using the zumi robots and learning how
 # January 13, 2025
 
 
+I think ai has a good chance at decreasing job oppurtonites for people because most companies are looking for cheaper options of employees for me to prepare myself i would learn multiple new skills so i can move to a new job that doesnt have ai.
