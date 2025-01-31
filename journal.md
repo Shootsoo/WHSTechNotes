@@ -78,3 +78,10 @@ I think ai has a good chance at decreasing job oppurtonites for people because m
 
 
 # January 23, 2025
+
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    |  Honda Civic   |   	Drilled Hole In Gas Tank      |
+| Kayla    |     |         |
+| Bart     |     |         |
+| Harrison |     |         |
