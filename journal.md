@@ -82,6 +82,6 @@ I think ai has a good chance at decreasing job oppurtonites for people because m
 | Name     | Car | Mistake |
 | :------- | :-- | :------ |
 | Jimmy    |  Honda Civic   |   	Drilled Hole In Gas Tank      |
-| Kayla    |     |         |
-| Bart     |     |         |
-| Harrison |     |         |
+| Kayla    |  GMC Sierra   |    Fixed Wrong Problem     |
+| Bart     | Toyota Corolla    |   Left Stains On Carpet      |
+| Harrison | Subaru Forester    |  Left The Oil Cap Off       |
