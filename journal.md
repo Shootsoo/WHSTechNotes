@@ -85,3 +85,9 @@ I think ai has a good chance at decreasing job oppurtonites for people because m
 | Kayla    |  GMC Sierra   |    Fixed Wrong Problem     |
 | Bart     | Toyota Corolla    |   Left Stains On Carpet      |
 | Harrison | Subaru Forester    |  Left The Oil Cap Off       |
+
+
+
+# Febuary 3, 2025
+
+Air craft control can keep planes seprate from eachother its capable of telling the piolet the weather, traffic, and redirect around hazards
