@@ -88,6 +88,6 @@ I think ai has a good chance at decreasing job oppurtonites for people because m
 
 
 
-# Febuary 3, 2025
+# February 3, 2025
 
-Air craft control can keep planes seprate from eachother its capable of telling the piolet the weather, traffic, and redirect around hazards
+Air craft control can keep planes seprate from eachother its capable of telling the piolet the weather, traffic, and redirect around hazards this will help stop accidents from happening again.
