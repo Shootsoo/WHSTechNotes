@@ -91,3 +91,9 @@ I think ai has a good chance at decreasing job oppurtonites for people because m
 # February 3, 2025
 
 Air craft control can keep planes seprate from eachother its capable of telling the piolet the weather, traffic, and redirect around hazards this will help stop accidents from happening again.
+
+
+
+Febuary 18, 2025
+
+I learnd in chemistry about pressure, tempature and molecules moving because of that.
