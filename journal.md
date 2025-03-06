@@ -97,3 +97,22 @@ Air craft control can keep planes seprate from eachother its capable of telling 
 # February 18, 2025
 
 I learnd in chemistry about pressure, tempature and molecules moving because of that.
+
+
+
+# Febuary 24, 2025
+
+Technolgy can help adults stay connected with the youth by letting older people connect with the youth and slowly start to understand new slang. Puting slang in programs will let younger people with connect more with thre thing they're doing and let them pay more attention with it since they'll recognize words that they commonly don't see in programs.
+
+
+
+# March 6, 2025
+
+| Name    | Power | Challenge |
+| :------ | :---- | :-------- |
+| Zara    |  Telekenesis     |  Secure Building         |
+| Aether  | Weather Manipulation      | Prevent Assassination          |
+| Thorne  | Invisibility      | Underwater Rescue          |
+| Silver  | Mind Control      | Retrieve Stolen Goods          |
+| Tangier | Shapeshifting      |  Extract Prisoner         |
+
