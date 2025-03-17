@@ -120,3 +120,4 @@ Technolgy can help adults stay connected with the youth by letting older people 
 
 # March 17, 2025
 
+I used my computer more often during the break and played cult of the lamb, marvel rivals, and limbus company it entertained me mostly but it did give me some challenging gameplay I had to get through 
