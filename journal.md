@@ -100,7 +100,7 @@ I learnd in chemistry about pressure, tempature and molecules moving because of 
 
 
 
-# Febuary 24, 2025
+# February 24, 2025
 
 Technolgy can help adults stay connected with the youth by letting older people connect with the youth and slowly start to understand new slang. Puting slang in programs will let younger people with connect more with thre thing they're doing and let them pay more attention with it since they'll recognize words that they commonly don't see in programs.
 
@@ -115,4 +115,8 @@ Technolgy can help adults stay connected with the youth by letting older people 
 | Thorne  | Invisibility      | Underwater Rescue          |
 | Silver  | Mind Control      | Retrieve Stolen Goods          |
 | Tangier | Shapeshifting      |  Extract Prisoner         |
+
+
+
+# March 17, 2025
 
