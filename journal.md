@@ -127,3 +127,9 @@ I used my computer more often during the break and played cult of the lamb, marv
 # March 24, 2025
 
 AI being in sports that make predictions makes the games less exciting because you most likely know whos gonna win which gets rid of the thrill of not knowing which team is gonna win but some posotive of puting AI in sports is the team knowing which people to put out on the feild so they have a better chance at winning and implementing AR in sports will allow people who would normally not be able to go have chance to feel like they're there for an example you may be crippled but you want to see your faviorot team well putting on VR glasses will allow you to get that expirince.
+
+
+
+# March 31, 2025
+
+I am feeling happy about school 
