@@ -140,6 +140,6 @@ I am feeling happy about school
 
 | Name     | Flavor | Occasion | Price |
 | :------- | :----- | :------- | :---- |
-| Sally    |  vannila      |          |       | 
-| Michael  |        |          |       | 
-| Emma     |        |          |       | 
+| Sally    |  vannila      | Farewell Party         |$37.00       | 
+| Michael  |  Chocolate      | Graduation         | $35.00      | 
+| Emma     |  Carrot      |  Birthday        | $39.00      | 
