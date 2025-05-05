@@ -140,6 +140,6 @@ I am feeling happy about school
 
 | Name     | Flavor | Occasion | Price |
 | :------- | :----- | :------- | :---- |
-| Sally    |        |          |       | 
+| Sally    |  vannila      |          |       | 
 | Michael  |        |          |       | 
 | Emma     |        |          |       | 
